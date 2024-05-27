@@ -8,4 +8,4 @@ His name is DuckBae.
 He is cute but ugly. Nevertheless I love him.  
 I love dancing.  
 I want to learn dance.  
-## 1. 취미 업데이트
+## 2. 특기 업데이트
